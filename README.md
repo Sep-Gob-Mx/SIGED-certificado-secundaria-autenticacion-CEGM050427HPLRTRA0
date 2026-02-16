@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-CEGM050427HPLRTRA0
+CEGM050427HPLRTRA0
